@@ -1,0 +1,7 @@
+- 👋 Hi, I’m amyjiang
+- 👀 I’m interested in reading
+- 🌱 I’m currently learning German
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me amyjiang2017@gmail.com
+- 😄 Pronouns: nothing
+- ⚡ Fun fact: have a cat
